@@ -2,7 +2,7 @@
 **BRUNO ALVES CORDEIRO**  
 Coordenador Técnico de Operações de TI  
 Brasília, DF - Brasil  
-(61) 91226-154  
+(61) 99122-6154  
 a.cordeiro191120@gmail.com  
 [LinkedIn: Bruno Alves Cordeiro](https://www.linkedin.com/in/bruno-alves-cordeiro/)  
 
